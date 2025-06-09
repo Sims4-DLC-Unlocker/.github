@@ -114,3 +114,5 @@ For updates, questions, or support, join our community on [Discord](https://disc
 This tool is released under the [BSD Zero Clause License](https://choosealicense.com/licenses/0bsd/). Full license details can be found in the [LICENSE.txt](LICENSE.txt) file.
 
 ---
+**Tags:**  
+sims 4 dlc unlocker, sims 4 expansion unlocker, sims unlocker, sims 4 free dlc, sims 4 dlc unlock, sims 4 dlc unlocker, sims dlc unlocker, anadius unlocker, ea dlc unlocker, sims 4 dlc tutorial, ea unlocker, ea dlc unlocker v2, sims 4 unlock dlc, sims 4 unlock expansion packs, sims 4 unlock packs, sims 4 unlock expansions, sims 4 packs, sims 4 expansion packs, ea unlocker tutorial, sims 4 steam unlock dlc, sims unlock expansions, sims ea dlc unlocker, sims anadius unlocker, how to unlock dlc in sims 4, anadius unlocker guide, ea dlc unlocker guide, sims 4 free dlc, sims 4 anadius unlocker, ea dlc unlocker, sims 4 unlock dlc, sims 4 expansion unlocker, sims 4 free expansions, sims 4 dlc unlocker github
